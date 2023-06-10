@@ -1,5 +1,5 @@
-* [GitHub](https://github.com/dingxinliang88)
+* [GitHub](https://github.com/yyh678)
 
 * 友情链接
-  * QQ: 1741530592
-  * 邮箱: d1741530592@163.com
+  * QQ: 1789065028
+  * 邮箱: y519516144@163.com
